@@ -3,14 +3,16 @@ Owned by Chloe Anne Tacorda
 
 The Heirs (Korean: 왕관을 쓰려는 자, 그 무게를 견뎌라 – 상속자들), also known as The Inheritors, is a South Korean television series starring Lee Min-ho, Park Shin-hye and Kim Woo-bin.[2] Written by Kim Eun-sook, the drama is set in a high school populated by the privileged and uber-rich.[3] It aired on SBS from October 9 to December 12, 2013.
 
+The series follows a group of wealthy, privileged high school students as they are about to take over their families' business empires, overcoming difficulties and growing every step of the way.
 
-https://asianwiki.com/The_Heirs_-_Korean_Drama
+Kim Tan (Lee Min-ho) is a wealthy heir to a large Korean conglomerate called Jeguk Group.[10] He was exiled to the U.S. by his half-brother Kim Won (Choi Jin-hyuk), who tries to take control of the family business.[11] While in the States, he meets Cha Eun-sang (Park Shin-hye), who went there to look for her sister.[12] Despite being engaged to Yoo Rachel (Kim Ji-won), a fellow heiress, Kim Tan, soon falls in love with Eun-sang. When Kim Tan returns to Korea, his former best friend turned enemy Choi Young-do (Kim Woo-bin) begins picking on Eun-sang to irritate Tan. Tension ensues when Young-do also falls in love with Eun-sang, and Kim Tan is forced to choose between his responsibility of pursuing the family business or love.
+
 
 Kdrama (The Heirs)
 
 Syntax highlighted code block
 
-https://asianwiki.com/The_Heirs_-_Korean_Drama### Header 3
+Header 3
 
 - Bulleted
 - List
