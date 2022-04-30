@@ -1,7 +1,8 @@
-# Kdramma recommendation (THE HEIRS)
+# Kdramma (THE HEIRS)
 Owned by Chloe Anne Tacorda
 
-https://asianwiki.com/The_Heirs_-_Korean_Drama
+The Heirs (Korean: 왕관을 쓰려는 자, 그 무게를 견뎌라 – 상속자들), also known as The Inheritors, is a South Korean television series starring Lee Min-ho, Park Shin-hye and Kim Woo-bin.[2] Written by Kim Eun-sook, the drama is set in a high school populated by the privileged and uber-rich.[3] It aired on SBS from October 9 to December 12, 2013.
+
 
 https://asianwiki.com/The_Heirs_-_Korean_Drama
 
