@@ -11,7 +11,7 @@ The series follows a group of wealthy, privileged high school students as they a
 THE HEIRS
 
 
-Kim Tan (Lee Min-ho) is a wealthy heir to a large Korean conglomerate called Jeguk Group. He was exiled to the U.S. by his half-brother Kim Won (Choi Jin-hyuk), who tries to take control of the family business. While in the States, he meets Cha Eun-sang (Park Shin-hye), who went there to look for her sister. Despite being engaged to Yoo Rachel (Kim Ji-won), a fellow heiress, Kim Tan, soon falls in love with Eun-sang. When Kim Tan returns to Korea, his former best friend turned enemy Choi Young-do (Kim Woo-bin) begins picking on Eun-sang to irritate Tan. Tension ensues when Young-do also falls in love with Eun-sang, and Kim Tan is forced to choose between his responsibility of pursuing the family business or love.
+Kim Tan (Lee Min-ho) is a wealthy heir of the Jeguk Group, a significant Korean corporation. His half-brother Kim Won (Choi Jin-hyuk), who is attempting to take over the family business, exiled him to the United States. He meets Cha Eun-sang (Park Shin-hye) in the United States, who is looking for her sister. Despite being engaged to Yoo Rachel (Kim Ji-won), Eun-sang falls in love with Kim Tan, a fellow heiress. When Kim Tan returns to Korea, Choi Young-do (Kim Woo-bin), his former best friend turned nemesis, begins picking on Eun-sang to aggravate Tan. When Young-do falls in love with Eun-sang, tensions rise, and Kim Tan is forced to choose between his family's company and his love life.
 
 -----------------------------------------------------------
 
@@ -30,5 +30,7 @@ Kim Tan is the heir to Empire Group who has been sent to study abroad in the U.S
 
 ![image](https://user-images.githubusercontent.com/103014899/166096111-c9a62304-b7de-44e5-9108-b4a5c67486a9.png)
 
+Overall, though, happy endings abounded for the characters. Kim Tan and Eun-sang solidified their relationship and are looking forward to their time together. Lee Bo-na and Chan-young are as cute as ever.
 
+![image](https://user-images.githubusercontent.com/103014899/166097328-938063c0-5595-453e-9938-b6db7ebdebfd.png)
 
