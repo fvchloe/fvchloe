@@ -11,7 +11,9 @@ The series follows a group of wealthy, privileged high school students as they a
 THE HEIRS
 
 
-Kim Tan (Lee Min-ho) is a wealthy heir of the Jeguk Group, a significant Korean corporation. His half-brother Kim Won (Choi Jin-hyuk), who is attempting to take over the family business, exiled him to the United States. He meets Cha Eun-sang (Park Shin-hye) in the United States, who is looking for her sister. Despite being engaged to Yoo Rachel (Kim Ji-won), Eun-sang falls in love with Kim Tan, a fellow heiress. When Kim Tan returns to Korea, Choi Young-do (Kim Woo-bin), his former best friend turned nemesis, begins picking on Eun-sang to aggravate Tan. When Young-do falls in love with Eun-sang, tensions rise, and Kim Tan is forced to choose between his family's company and his love life.
+Kim Tan (Lee Min-ho) is a wealthy heir of the Jeguk Group, a significant Korean corporation. His half-brother Kim Won (Choi Jin-hyuk), who is attempting to take over the family business, exiled him to the United States. He meets Cha Eun-sang (Park Shin-hye) in the United States, who is looking for her sister. Despite being engaged to Yoo Rachel (Kim Ji-won), Eun-sang falls in love with Kim Tan, a fellow heiress. 
+
+When Kim Tan returns to Korea, Choi Young-do (Kim Woo-bin), his former best friend turned nemesis, begins picking on Eun-sang to aggravate Tan. When Young-do falls in love with Eun-sang, tensions rise, and Kim Tan is forced to choose between his family's company and his love life.
 
 -----------------------------------------------------------
 
