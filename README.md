@@ -1,20 +1,15 @@
-## Welcome to GitHub Pages
+# Kdramma recommendation (THE HEIRS)
 Owned by Chloe Anne Tacorda
 
-You can use the [editor on GitHub](https://github.com/fvchloe/fvchloe/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+https://asianwiki.com/The_Heirs_-_Korean_Drama
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+https://asianwiki.com/The_Heirs_-_Korean_Drama
 
-### Markdown
+Kdrama (The Heirs)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
 Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+https://asianwiki.com/The_Heirs_-_Korean_Drama### Header 3
 
 - Bulleted
 - List
